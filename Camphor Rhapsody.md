@@ -15,8 +15,8 @@ Without the polar day,
 We redecorate the camphor growing in the rock.  
 
 I will miss the flicker, then grab the hair of night.  
-Looking around, departure blow vagrant¡¯s light.  
-Dongchuan Road, I¡¯d rather you were born on the plateau  
+Looking around, departure blow vagrant's light.  
+Dongchuan Road, I'd rather you were born on the plateau  
 Before all roar stagnating, we still have the silence of mountains.  
 
 Years later, broken words are gentle.   
