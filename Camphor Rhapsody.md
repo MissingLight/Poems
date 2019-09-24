@@ -94,7 +94,7 @@ Fresh youth is still dormant, listening
 Writing expensive words on broken boundaries  
 Unmoved either by gain or loss.  
 
-And I, accompanying me,  
+And I, accompanying me,   
 Set out in turn, heading for the infinite minority.  
 You and I, under the camphor tree tonight,  
 like a haystack looking for fire in the wind.  
